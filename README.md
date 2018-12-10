@@ -1,2 +1,1 @@
 Schiess Lindo
-gATO
